@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on Capture Flag
 - 📫 How to reach me ...
 - 😄 Pronouns: ...
-- ⚡ Fun fact: Revenge.
+- ⚡ Fun fact: gasuka main ff
 
 <!---
 S4yagji/S4yagji is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
